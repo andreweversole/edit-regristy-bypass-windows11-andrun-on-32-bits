@@ -1,0 +1,1 @@
+# edit-regristy-bypass-windows11-andrun-on-32-bits
